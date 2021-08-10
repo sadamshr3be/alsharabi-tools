@@ -28,3 +28,4 @@ https://t.me/termuxalsharabi
 # المدونه. 
 
 https://sadamalsharabi.blogspot.com
+# وشكرا تحياتي لكم م̷ـــِْن مصمم الاداة صدام الشرعبي 
